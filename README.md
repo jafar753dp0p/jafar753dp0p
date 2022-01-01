@@ -1,4 +1,4 @@
-### Hi there 👋
+### God gives us evil at the same time, also give us conquer evil weapons. 👋
 
 <!--
 **jafar753dp0p/jafar753dp0p** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
